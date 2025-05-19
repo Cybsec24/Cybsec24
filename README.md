@@ -1,7 +1,7 @@
 Hello there! 👋 
 ======================
 
-IT Professional aspiring to contribute to the field of Cybersecurity.
+Experienced IT and audio professional.
 ---------------------------------------------------------------------
 
 After a family member experienced a hack, Aaron discovered a renewed passion for IT, specifically in the field of Cybersecurity. Aaron is an IT professional with roles predominantly in studios and production houses for music, TV and film. Aaron has managed, mixed, produced and engineered many award winning projects in the media space, and hopes to leverage his experiences into a role in IT and or cybersecurity.
